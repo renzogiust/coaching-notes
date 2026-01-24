@@ -1,4 +1,4 @@
-Non sempre il problema è lo stress. 
+Non sempre il problema è lo stress.  
 A volte è che stai funzionando (anche molto bene) in una direzione che non senti più tua.
 
 Per anni ho lavorato intensamente nel mondo della tecnologia, contribuendo alla costruzione di prodotti digitali, guidando team e occupandomi di progetti complessi. Eppure, proprio quando tutto sembrava avere senso, ho iniziato a sentire qualcosa che molte persone nel digitale conoscono bene: risultati che arrivano, ma poca soddisfazione. Un senso di vuoto difficile da spiegare.
